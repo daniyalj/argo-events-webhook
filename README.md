@@ -2,10 +2,3 @@
 
 
 d
-
-
-asd
-asd
-asd
-ad
-asdasd
